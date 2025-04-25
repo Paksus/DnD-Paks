@@ -1,0 +1,1 @@
+Miejsce na które party natknęło się przypadkowo
