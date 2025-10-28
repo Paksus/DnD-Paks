@@ -1,1 +1,2 @@
 - bohaterowie spotykają sie w wiosce
+- co jest nie tak wiosce wpisać po sjsje
