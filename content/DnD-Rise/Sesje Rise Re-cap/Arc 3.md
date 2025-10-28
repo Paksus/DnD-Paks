@@ -1,2 +1,3 @@
-- Widziałem, jak korporacje pozbawiały rolników wody… a w końcu i ziemi. Widziałem, jak przekształciły Night City w maszynę napędzaną zgniecionymi duchami ludzi, połamanymi marzeniami i pustymi kieszeniami. Korporacje od dawna kontrolowały nasze życie, zabrały wiele… a teraz chcą naszych dusz! V, wypowiedziałem wojnę nie dlatego, że kapitalizm jest mi cierniem w boku, ani z nostalgii za minionymi czasami Ameryki. To wojna ludowa przeciwko systemowi, który wymknął się spod kontroli. To wojna przeciwko pieprzonym siłom entropii, rozumiesz? Zrób, co trzeba, żeby ich powstrzymać, pokonać, roztrzaskać. Jeśli muszę zabijać, będę zabijał. Jeśli potrzebuję twojego ciała, pieprzone wezmę je! Pieprzona cholera… Wciąż tego nie widzisz. Ale kiedyś zobaczysz.
-- no i potem 9/11 na stolice
+test
+
+
